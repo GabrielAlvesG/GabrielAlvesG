@@ -30,14 +30,6 @@ Especialista em Jogos Digitais e Engenheiro de Software com mais de 8 anos de ex
 
 * * *
 
-### 📈 Estatísticas do GitHub
-
-  
-  
-  
-
-* * *
-
 ### 🌐 Conecte-se Comigo
 
 *   💼 [LinkedIn](/url?sa=i&source=web&rct=j&url=https://br.linkedin.com/&ved=2ahUKEwiT_o7cxZ2VAxULGbkGHbXYLUoQy_kOegYIAAgHEBY&opi=89978449&cd&psig=AOvVaw1Dw0nJWv-bhF5Y-brkXArf&ust=1782310384742000)
